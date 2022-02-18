@@ -4,6 +4,9 @@
 Empowering Women Artist 
 
 
+Implemented product and institutional spokenperson related to gender gap, women at technology, etc.
+
+
 + 100 subscribers on Mail List
 
 
