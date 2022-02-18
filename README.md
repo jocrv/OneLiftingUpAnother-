@@ -4,6 +4,15 @@
 Empowering Women Artist 
 
 
++ 100 subscribers on Mail List
+
+
++ Sponsored by British enterprise located in Brazil during 2018.
+
+
++ More 3 women contributors
+
+
 [HTML] [CSS]
 
 
